@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 I'm currently working as a Tech Talent in a MNC.<br>🔭 I'm curious Techie with an enthusiasm for technology, helping machines learn more about you so the machines can save your time, that you would have otherwise wasted in deciding where to waste your time.<br>🤝 Looking to collaborate on Full Stack-related content creation.<br>🌱 Share your ideas to make this world a better place to live.<br>💬 Ask me about Full Stack Development.<br>📫 Reach out me on vivekshukla21mzp@gmail.com
+👋 I'm currently working as a Tech Talent in a MNC.<br>🔭 I'm curious Techie with an enthusiasm for technology, helping machines learn more about you so the machines can save your time, that you would have otherwise wasted in deciding where to waste your time.<br>🤝 Looking to collaborate on Full Stack-related content creation.<br>🌱 Share your ideas to make this world a better place to live.<br>💬 Ask me about Full Stack Development.<br>📫 Reach out me on vivekkumarshukla218@gmail.com
 
 
 ## 🌐 Socials:
